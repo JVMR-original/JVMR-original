@@ -1,1 +1,1 @@
-"O basico bem feito é melhor do que o avansado de qualquer jeito"
+gosto de dar o bumbum
